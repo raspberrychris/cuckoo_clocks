@@ -17,7 +17,22 @@ Whether you're a seasoned collector or a newcomer enchanted by the whimsical cha
 
 We invite you to explore our world, where every second is celebrated with the melodious chime and delightful emergence of a tiny cuckoo, marking the passage of time in the most enchanting way. Welcome to Cuckoo Clocks – where time tells a story.
 
-
+|                     |                                                                                 |                                                                                  |                                                                                  |                                                                                                                                                                                                                                                                                                                                                                        |
+|---------------------|---------------------------------------------------------------------------------|----------------------------------------------------------------------------------|----------------------------------------------------------------------------------|------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------|
+|                     | ![cuckoo-clock-1](<https://m.media-amazon.com/images/I/81vGQMfcfZL._AC_.jpg>) ] | ![cuckoo-clock-1]( <https://m.media-amazon.com/images/I/61c-M6MCmRL._AC_.jpg>) ] | ![cuckoo-clock-1]( <https://m.media-amazon.com/images/I/91UfN8KXI6L._AC_.jpg>) ] | ![cuckoo-clock-1]( <https://www.amazon.co.uk/Traditional-Cuckoo-Quartz-Widdop-Bingham/dp/B0042SXZP8/ref=pd_ci_mcx_pspc_dp_d_2_i_3?pd_rd_w=4IXyP&content-id=amzn1.sym.8db49f41-2d78-4c1c-bc3b-fb9e44b9efb4&pf_rd_p=8db49f41-2d78-4c1c-bc3b-fb9e44b9efb4&pf_rd_r=38P4T0GE210CB9WMKREV&pd_rd_wg=oVnAy&pd_rd_r=2c798551-7fd1-4679-83de-b8ea45e1b15e&pd_rd_i=B0042SXZP8>) ] |
+| Customer Ratings    | 4.94.9 out of 5 stars26                                                         | 5.05.0 out of 5 stars7                                                           | 4.24.2 out of 5 stars1,427                                                       | 4.44.4 out of 5 stars119                                                                                                                                                                                                                                                                                                                                               |
+| Craftsmanship       |                                       5.0                                       |                                         —                                        |                                        3.8                                       |                                                                                                                                                                                   4.0                                                                                                                                                                                  |
+| Value For Money     |                                       4.5                                       |                                         —                                        |                                        4.2                                       |                                                                                                                                                                                   4.3                                                                                                                                                                                  |
+| Sold By             |                                       ISDD                                      |                                       ISDD                                       |                                     I-WallArt                                    |                                                                                                                                                                                  Blyme                                                                                                                                                                                 |
+| Material            |                                       Wood                                      |                                       Wood                                       |                                      Plastic                                     |                                                                                                                                                                                  Wood                                                                                                                                                                                  |
+| Shape               |                                      House                                      |                                       House                                      |                                    Rectangular                                   |                                                                                                                                                                                  House                                                                                                                                                                                 |
+| Mounting Type       |                                    Wall Mount                                   |                                    Wall Mount                                    |                                    Wall Mount                                    |                                                                                                                                                                               Wall Mount                                                                                                                                                                               |
+| Operation Mode      |                                    Mechanical                                   |                                    Electrical                                    |                                    Mechanical                                    |                                                                                                                                                                               Mechanical                                                                                                                                                                               |
+| Signal Format       |                                      Analog                                     |                                      Analog                                      |                                      Analog                                      |                                                                                                                                                                                 Analog                                                                                                                                                                                 |
+| Style               |                                      cuckoo                                     |                                      cuckoo                                      |                                      Vintage                                     |                                                                                                                                                                               Traditional                                                                                                                                                                              |
+| Watch Movement Type |                                      Quartz                                     |                                      Quartz                                      |                                      Quartz                                      |                                                                                                                                                                                 Quartz                                                                                                                                                                                 |
+| Alarm Clock         |                                        ✗                                        |                                         ✗                                        |                                         ✗                                        |                                                                                                                                                                                    ✗                                                                                                                                                                                   |
+| Batteries Included  |                                        ✗                                        |                                         ✗                                        |                                         ✗                                        |                                                                                                                                                                                    ✗                                                                                                                                                                                   |
 
 
 ## [Quartz Cuckoo Clock Black Forest House  Moving](/Quartz-Cuckoo-Clock-Black-Forest-House--Moving)
@@ -203,41 +218,51 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Five Leaves Bird 1.0020.01.E](/Cuckoo-Clock-Five-Leaves-Bird-1.0020.01.E)
 [![Cuckoo-Clock-Five-Leaves-Bird-1.0020.01.E](<https://m.media-amazon.com/images/I/51rIS9d0ZLL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-leaves-1-0020-01/dp/B000YSB8MC/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Five-Leaves-Bird-1.0020.01.E](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-leaves-1-0020-01/dp/B000YSB8MC/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand              | August Schwer                       |
+|--------------------|-------------------------------------|
+| Model Number       | 1.0020.01.E                         |
+| Package Dimensions | 27.8 x 20 x 15.8 cm; 1.62 Kilograms |
+| Material           | Wood                                |
+| Special Features   | Silent clock                        |
+| Item Weight        | 1.62 kg                             |
+
 ### Customers Say about this product
 
-> 
+> It's beautiful. It looks great on my wall!
 
 ---
 
 ## [Cuckoo Wall Clock Wooden Clock Retro Alarm Clock](/Cuckoo-Wall-Clock-Wooden-Clock-Retro-Alarm-Clock)
 [![Cuckoo-Wall-Clock-Wooden-Clock-Retro-Alarm-Clock](<https://m.media-amazon.com/images/I/71Cl22gdRYL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Rawdah-Cuckoo-Kitchen-Decoration-Housewarming/dp/B08VWZRMWC/?tag=cuckoo0d-21>)[![Cuckoo-Wall-Clock-Wooden-Clock-Retro-Alarm-Clock](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Rawdah-Cuckoo-Kitchen-Decoration-Housewarming/dp/B08VWZRMWC/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand        | Rawdah*             |
+|--------------|---------------------|
+| Model Number | Rawdah Cuckoo Clock |
+| Colour       | G                   |
+| Item Weight  | 272.16 Grams        |
+| Material     | Wood                |
+| Item Weight  | 272 g               |
+
 ### Customers Say about this product
 
-> 
+> N/A. No customer reviews yet
 
 ---
 
-## [Cuckoo Clock Black Forest House  Moving Beer](/Cuckoo-Clock-Black-Forest-House--Moving-Beer)
-[![Cuckoo-Clock-Black-Forest-House--Moving-Beer](<https://m.media-amazon.com/images/I/81gW5tVEmRL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-drinker/dp/B00BOYECNC/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House--Moving-Beer](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-drinker/dp/B00BOYECNC/?tag=cuckoo0d-21>)
-
-### Product Description 
+## [Cuckoo Clock Black Forest House Moving Beer](/Cuckoo-Clock-Black-Forest-House-Moving-Beer)
+[![Cuckoo-Clock-Black-Forest-House-Moving-Beer](<https://m.media-amazon.com/images/I/81gW5tVEmRL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-drinker/dp/B00BOYECNC/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Moving-Beer](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-drinker/dp/B00BOYECNC/?tag=cuckoo0d-21>)
 
 ### Our Rating For This Product
 
@@ -245,39 +270,55 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ### Technical Details
 
+| Brand              | ISDD Cuckoo Clocks              |
+|--------------------|---------------------------------|
+| Model Number       | KA 879                          |
+| Colour             | Walnut                          |
+| Product Dimensions | 29 x 32 x 19 cm; 5.26 Kilograms |
+| Material           | Wood                            |
+| Special Features   | Silent clock                    |
+| Item Weight        | 5.26 kg                         |
+
 ### Customers Say about this product
 
-> 
+> I really love this clock, it's beautifully designed and fits perfectly in my room.
 
 ---
 
 ## [Cuckoo Clock Snow White](/Cuckoo-Clock-Snow-White)
 [![Cuckoo-Clock-Snow-White](<https://m.media-amazon.com/images/I/81-VimlzgXL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-White/dp/B007TKZMCK/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Snow-White](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-White/dp/B007TKZMCK/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand              | August Schwer                  |
+|--------------------|--------------------------------|
+| Model Number       | 5.0751.01.P                    |
+| Colour             | White                          |
+| Product Dimensions | 33 x 40 x 20 cm; 9.8 Kilograms |
+| Material           | Wood                           |
+| Special Features   | Hourly Clock                   |
+| Item Weight        | 9.8 kg                         |
+
 ### Customers Say about this product
 
-> 
+> Cute cuckoo clock, well designed and fast delivery.
 
 ---
 
 ## [Cuckoo Clock Christmas Clock](/Cuckoo-Clock-Christmas-Clock)
 [![Cuckoo-Clock-Christmas-Clock](<https://m.media-amazon.com/images/I/71Ie7K2JTNL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Christmas/dp/B0075HG2W6/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Christmas-Clock](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Christmas/dp/B0075HG2W6/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
+
+
 
 ### Customers Say about this product
 
