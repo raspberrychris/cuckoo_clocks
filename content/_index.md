@@ -18,27 +18,31 @@ Whether you're a seasoned collector or a newcomer enchanted by the whimsical cha
 We invite you to explore our world, where every second is celebrated with the melodious chime and delightful emergence of a tiny cuckoo, marking the passage of time in the most enchanting way. Welcome to Cuckoo Clocks – where time tells a story.
 
 
+
+
 ## [Quartz Cuckoo Clock Black Forest House  Moving](/Quartz-Cuckoo-Clock-Black-Forest-House--Moving)
 [![Quartz-Cuckoo-Clock-Black-Forest-House--Moving](<https://m.media-amazon.com/images/I/81vGQMfcfZL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Quartz-Cuckoo-Forest-48110-QMT/dp/B01HNQY7RA/?tag=cuckoo0d-21>)[![Quartz-Cuckoo-Clock-Black-Forest-House--Moving](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Quartz-Cuckoo-Forest-48110-QMT/dp/B01HNQY7RA/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Product Dimensions | 39.5 x 40 x 21.5 cm; 3.72 Kilograms |
+|--------------------|-------------------------------------|
+| Number of pieces   | 1                                   |
+| Batteries required | No                                  |
+| Item weight        | 3.72 Kilograms                      |
+
 ### Customers Say about this product
 
-> 
+> Absolutely blown away but the craftsmanship of this cuckoo clock. The sound the cuckoo makes every hour is soo realistic, it also plays different tunes each hour.
 
 ---
 
-## [Cuckoo Clock - Summer Meadow Chalet  8-Day-Movement](/Cuckoo-Clock---Summer-Meadow-Chalet--8-Day-Movement)
-[![Cuckoo-Clock---Summer-Meadow-Chalet--8-Day-Movement](<https://m.media-amazon.com/images/I/91V50dE0vnL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Clock-Summer-CUCKOO-PALACE-8-day-movement/dp/B01M1C14CF/?tag=cuckoo0d-21>)[![Cuckoo-Clock---Summer-Meadow-Chalet--8-Day-Movement](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Clock-Summer-CUCKOO-PALACE-8-day-movement/dp/B01M1C14CF/?tag=cuckoo0d-21>)
-
-### Product Description 
+## [Cuckoo Clock - Summer Meadow Chalet 8-Day-Movement](/Cuckoo-Clock-Summer-Meadow-Chalet-8-Day-Movement)
+[![Cuckoo-Clock-Summer-Meadow-Chalet--8-Day-Movement](<https://m.media-amazon.com/images/I/91V50dE0vnL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Clock-Summer-CUCKOO-PALACE-8-day-movement/dp/B01M1C14CF/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Summer-Meadow-Chalet--8-Day-Movement](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Clock-Summer-CUCKOO-PALACE-8-day-movement/dp/B01M1C14CF/?tag=cuckoo0d-21>)
 
 ### Our Rating For This Product
 
@@ -46,16 +50,20 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ### Technical Details
 
+| Product Dimensions | 30 x 18 x 34 cm; 5.47 Kilograms |
+|--------------------|---------------------------------|
+| Number of pieces   | 1                               |
+| Batteries required | No                              |
+| Item weight        | 5.47 Kilograms                  |
+
 ### Customers Say about this product
 
-> 
+> Absolutely beautiful clock, amazing craftsmanship, amazing cuckoo sound produced by bellows, doesn't get much better than this,
 
 ---
 
-## [Cuckoo Clock Owls Birds  Nest Fern Leaves](/Cuckoo-Clock-Owls-Birds--Nest-Fern-Leaves)
-[![Cuckoo-Clock-Owls-Birds--Nest-Fern-Leaves](<https://m.media-amazon.com/images/I/51ukBYAroVL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-leaves/dp/B001156A7A/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Owls-Birds--Nest-Fern-Leaves](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-leaves/dp/B001156A7A/?tag=cuckoo0d-21>)
-
-### Product Description 
+## [Cuckoo Clock Owls Birds Nest Fern Leaves](/Cuckoo-Clock-Owls-Birds--Nest-Fern-Leaves)
+[![Cuckoo-Clock-Owls-Birds-Nest-Fern-Leaves](<https://m.media-amazon.com/images/I/51ukBYAroVL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-leaves/dp/B001156A7A/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Owls-Birds--Nest-Fern-Leaves](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-leaves/dp/B001156A7A/?tag=cuckoo0d-21>)
 
 ### Our Rating For This Product
 
@@ -63,84 +71,114 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ### Technical Details
 
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 2.5036.01.P   |
+| Item Weight      | 6 Kilograms   |
+| Material         | Wood          |
+| Special Features | Alarm         |
+| Item Weight      | 6 kg          |
+
 ### Customers Say about this product
 
-> 
+> The photos don't even come close to doing this clock justice! Absolutely beautiful. I paid for fast delivery, and it came fast, just a few days later! Arrived perfectly, easy to set up, works beautifully! Cuckoo is Wonderful! Couldn't be happier with my new woodland friends!
 
 ---
 
 ## [Cuckoo Clock Romantic Kiss Clock](/Cuckoo-Clock-Romantic-Kiss-Clock)
 [![Cuckoo-Clock-Romantic-Kiss-Clock](<https://m.media-amazon.com/images/I/41jIA-EvIzL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Romantic/dp/B000YSEFZ4/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Romantic-Kiss-Clock](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Romantic/dp/B000YSEFZ4/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 5.8870.01.P   |
+| Item Weight      | 9.3 Kilograms |
+| Material         | Wood          |
+| Special Features | Silent Clock  |
+| Item Weight      | 9.3 kg        |
+
 ### Customers Say about this product
 
-> 
+> Look nice and lovely music
 
 ---
 
 ## [Cuckoo Clock Horses Scene](/Cuckoo-Clock-Horses-Scene)
 [![Cuckoo-Clock-Horses-Scene](<https://m.media-amazon.com/images/I/41blAJDXQ0L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Horses/dp/B000YS75I8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Horses-Scene](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Horses/dp/B000YS75I8/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.0556.01.P                      |
+| Package Dimensions | 100 x 100 x 50 cm; 5.9 Kilograms |
+| Material           | Wood                             |
+| Special Features   | Alarm                            |
+| Item Weight        | 5.9 kg                           |
+
 ### Customers Say about this product
 
-> 
+> Very nice clock. Exactly as described.
 
 ---
 
 ## [Retro Cuckoo Clock Pendulum Black Forest House Cuckoo](/Retro-Cuckoo-Clock-Pendulum-Black-Forest-House-Cuckoo)
 [![Retro-Cuckoo-Clock-Pendulum-Black-Forest-House-Cuckoo](<https://m.media-amazon.com/images/I/71+MPMnM+LL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Pendulum-Hanging-Traditional-Decoration/dp/B08T9KCW59/?tag=cuckoo0d-21>)[![Retro-Cuckoo-Clock-Pendulum-Black-Forest-House-Cuckoo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Pendulum-Hanging-Traditional-Decoration/dp/B08T9KCW59/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand            | WENHAO                         |
+|------------------|--------------------------------|
+| Colour           | D                              |
+| Material         | cuckoo clocks with cuckoo bird |
+| Special Features | Alarm                          |
+| Special Features | Alarm                          |
+| Item Weight      | 5.9 kg                         |
+
 ### Customers Say about this product
 
-> 
+> It looks marvellous, sounds fantastic. Very impressed.
 
 ---
 
 ## [Cuckoo Clock Jumping Deer](/Cuckoo-Clock-Jumping-Deer)
 [![Cuckoo-Clock-Jumping-Deer](<https://m.media-amazon.com/images/I/8160MsQWRuL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Jumping/dp/B000YS75SS/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Jumping-Deer](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Jumping/dp/B000YS75SS/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand              | August Schwer                  |
+|--------------------|--------------------------------|
+| Model Number       | 5.0432.01.C                    |
+| Product Dimensions | 29 x 34 x 21 cm; 9.5 Kilograms |
+| Material           | Wood                           |
+| Special Features   | Hourly Clock                   |
+| Item Weight        | 9.5 kg                         |
+
 ### Customers Say about this product
 
-> 
+> The product is well made and the communication from the local store front was accurate and responsive. Because of the small parts, be careful when removing from packaging.
 
 ---
 
-## [Cuckoo Clock Owl  Child Nest 2.5035.01.P](/Cuckoo-Clock-Owl--Child-Nest-2.5035.01.P)
-[![Cuckoo-Clock-Owl--Child-Nest-2.5035.01.P](<https://m.media-amazon.com/images/I/51Wyz3kwJKL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-2-5035-01-P/dp/B000YSD1S6/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Owl--Child-Nest-2.5035.01.P](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-2-5035-01-P/dp/B000YSD1S6/?tag=cuckoo0d-21>)
-
-### Product Description 
+## [Cuckoo Clock Owl Child Nest 2.5035.01.P](/Cuckoo-Clock-Owl-Child-Nest-2.5035.01.P)
+[![Cuckoo-Clock-Owl-Child-Nest-2.5035.01.P](<https://m.media-amazon.com/images/I/51Wyz3kwJKL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-2-5035-01-P/dp/B000YSD1S6/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Owl--Child-Nest-2.5035.01.P](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-2-5035-01-P/dp/B000YSD1S6/?tag=cuckoo0d-21>)
 
 ### Our Rating For This Product
 
@@ -148,9 +186,17 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ### Technical Details
 
+| Brand              | August Schwer                        |
+|--------------------|--------------------------------------|
+| Model Number       | 2.5035.01.P                          |
+| Package Dimensions | 49.4 x 40.4 x 28.6 cm; 6.2 Kilograms |
+| Material           | Wood                                 |
+| Special Features   | Alarm                                |
+| Item Weight        | 6.2 kg                               |
+
 ### Customers Say about this product
 
-> 
+> This clock is beautiful the wood carvings superb
 
 ---
 
