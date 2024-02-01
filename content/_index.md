@@ -11,11 +11,13 @@ Embark on a journey through the charming realm of cuckoo clocks, where tradition
 
 Our collection showcases a variety of cuckoo clocks, from the classic Black Forest style with intricate carvings and detailed paintings to modern interpretations that blend timeless elements with contemporary design. Each clock in our catalog is a masterpiece, crafted with passion and precision by skilled artisans dedicated to preserving this age-old art form.
 
+![cuckoo-clocks-illustration](/cuckooclocks-header.png)
+
 Whether you're a seasoned collector or a newcomer enchanted by the whimsical charm of these mechanical marvels, Cuckoo Clocks offers something for everyone. Discover the perfect cuckoo clock that resonates with your style and adds a touch of magic to your home.
 
 We invite you to explore our world, where every second is celebrated with the melodious chime and delightful emergence of a tiny cuckoo, marking the passage of time in the most enchanting way. Welcome to Cuckoo Clocks – where time tells a story.
 
-## Our Top Picks
+## Our Top Picks - A few of our all time favourite cuckoo clocks
 
 |                     |                                                                               |                                                                                |                                                                                |                                                                                |
 |---------------------|-------------------------------------------------------------------------------|--------------------------------------------------------------------------------|--------------------------------------------------------------------------------|--------------------------------------------------------------------------------|
