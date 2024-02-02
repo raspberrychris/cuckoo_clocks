@@ -389,67 +389,89 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ### Technical Details
 
+| Brand              | ISDD Cuckoo Clock            |
+|--------------------|------------------------------|
+| Model Number       | RH KSSL-2                    |
+| Colour             | Black                        |
+| Product Dimensions | 18 x 18 x 13 cm; 2 Kilograms |
+| Material           | Wood                         |
+| Special Features   | Silent clock                 |
+| Item Weight        | 2 kg                         |
+
 ### Customers Say about this product
 
-> 
+> Great modern-looking clock.
 
 ---
 
 ## [Cuckoo Clock House Of The Black Forest](/Cuckoo-Clock-House-Of-The-Black-Forest)
 [![Cuckoo-Clock-House-Of-The-Black-Forest](<https://m.media-amazon.com/images/I/7134pLTj5iL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Anton-Schneider-Cuckoo-Clock-Forest/dp/B002QZV9F2/?tag=cuckoo0d-21>)[![Cuckoo-Clock-House-Of-The-Black-Forest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Anton-Schneider-Cuckoo-Clock-Forest/dp/B002QZV9F2/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Number of pieces   | 1   |
+|--------------------|-----|
+| Batteries required | Yes |
+
 ### Customers Say about this product
 
-> 
+> No review yet.
 
 ---
 
 ## [Cuckoo Clock House Shepherd Sheep](/Cuckoo-Clock-House-Shepherd-Sheep)
 [![Cuckoo-Clock-House-Shepherd-Sheep](<https://m.media-amazon.com/images/I/51rnmnqAQZL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-shepherd/dp/B002A9XWO0/?tag=cuckoo0d-21>)[![Cuckoo-Clock-House-Shepherd-Sheep](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-shepherd/dp/B002A9XWO0/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 4.0446.01.C   |
+| Item Weight      | 5.9 Kilograms |
+| Material         | Wood          |
+| Special Features | Alarm         |
+| Item Weight      | 5.9 kg        |
+
 ### Customers Say about this product
 
-> 
+> Comes with a certificate from the Black Forest Clock Association. Really love it!
 
 ---
 
 ## [Cuckoo Clock House Eagle Hunter](/Cuckoo-Clock-House-Eagle-Hunter)
 [![Cuckoo-Clock-House-Eagle-Hunter](<https://m.media-amazon.com/images/I/4120QDnVehL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Hunter/dp/B0029ZCE62/?tag=cuckoo0d-21>)[![Cuckoo-Clock-House-Eagle-Hunter](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Hunter/dp/B0029ZCE62/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 5.0471.01.C   |
+| Item Weight      | 8.6 Kilograms |
+| Material         | Wood          |
+| Special Features | Alarm         |
+| Item Weight      | 8.6 kg        |
+
+
 ### Customers Say about this product
 
-> 
+> No customer reviews
 
 ---
 
-## [Cuckoo Clock Fox Eagle  Handcarved Wooden Weights](/Cuckoo-Clock-Fox-Eagle--Handcarved-Wooden-Weights)
-[![Cuckoo-Clock-Fox-Eagle--Handcarved-Wooden-Weights](<https://m.media-amazon.com/images/I/41WtNph8TQL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-handcarved-weights/dp/B0029Z6HS8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Fox-Eagle--Handcarved-Wooden-Weights](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-handcarved-weights/dp/B0029Z6HS8/?tag=cuckoo0d-21>)
-
-### Product Description 
+## [Cuckoo Clock Fox Eagle Handcarved Wooden Weights](/Cuckoo-Clock-Fox-Eagle-Handcarved-Wooden-Weights)
+[![Cuckoo-Clock-Fox-Eagle-Handcarved-Wooden-Weights](<https://m.media-amazon.com/images/I/41WtNph8TQL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-handcarved-weights/dp/B0029Z6HS8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Fox-Eagle--Handcarved-Wooden-Weights](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-handcarved-weights/dp/B0029Z6HS8/?tag=cuckoo0d-21>)
 
 ### Our Rating For This Product
 
@@ -457,16 +479,22 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ### Technical Details
 
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 5.0471.01.C   |
+| Item Weight      | 8.6 Kilograms |
+| Material         | Wood          |
+| Special Features | Alarm         |
+| Item Weight      | 8.6 kg        |
+
 ### Customers Say about this product
 
-> 
+> Beautiful, beautiful cuckoo clock. Bought as a present and it got great compliments.
 
 ---
 
-## [Cuckoo Clock Farm  Chapel Grandpa And Grandma](/Cuckoo-Clock-Farm--Chapel-Grandpa-And-Grandma)
-[![Cuckoo-Clock-Farm--Chapel-Grandpa-And-Grandma](<https://m.media-amazon.com/images/I/41m-icue9tL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-grandpa-grandma/dp/B0029Z2RZU/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Farm--Chapel-Grandpa-And-Grandma](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-grandpa-grandma/dp/B0029Z2RZU/?tag=cuckoo0d-21>)
-
-### Product Description 
+## [Cuckoo Clock Farm Chapel Grandpa And Grandma](/Cuckoo-Clock-Farm-Chapel-Grandpa-And-Grandma)
+[![Cuckoo-Clock-Farm-Chapel-Grandpa-And-Grandma](<https://m.media-amazon.com/images/I/41m-icue9tL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-grandpa-grandma/dp/B0029Z2RZU/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Farm-Chapel-Grandpa-And-Grandma](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-grandpa-grandma/dp/B0029Z2RZU/?tag=cuckoo0d-21>)
 
 ### Our Rating For This Product
 
@@ -474,186 +502,184 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ### Technical Details
 
+| Brand            | August Schwer  |
+|------------------|----------------|
+| Model Number     | 5.8869.01.C    |
+| Item Weight      | 10.7 Kilograms |
+| Material         | Wood           |
+| Special Features | Silent Clock   |
+| Item Weight      | 10.7 kg        |
+
 ### Customers Say about this product
 
-> 
+> No customer reviews.
 
 ---
 
 ## [Cuckoo Clock Black Forest House Trees Bear](/Cuckoo-Clock-Black-Forest-House-Trees-Bear)
 [![Cuckoo-Clock-Black-Forest-House-Trees-Bear](<https://m.media-amazon.com/images/I/41LLUE+9M8L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B0016GLMBI/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Trees-Bear](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B0016GLMBI/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 2.0215.01.C   |
+| Colour           | Black         |
+| Item Weight      | 7.5 Kilograms |
+| Material         | Wood          |
+| Special Features | Alarm         |
+| Item Weight      | 7.5 kg        |
+
 ### Customers Say about this product
 
-> 
+> No customer reviews.
 
 ---
 
 ## [Cuckoo Clock Black Forest House 2 Beer Drinkers](/Cuckoo-Clock-Black-Forest-House-2-Beer-Drinkers)
 [![Cuckoo-Clock-Black-Forest-House-2-Beer-Drinkers](<https://m.media-amazon.com/images/I/414I0LvhjYL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Drinkers/dp/B0016GLMB8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-2-Beer-Drinkers](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Drinkers/dp/B0016GLMB8/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand        | August Schwer |
+|--------------|---------------|
+| Model Number | 5.0433.01.C   |
+| Colour       | Black         |
+| Item Weight  | 8.5 Kilograms |
+| Material     | Wood          |
+| Item Weight  | 8.5 kg        |        
+
 ### Customers Say about this product
 
-> 
+> I really, really love this cuckoo clock!
 
 ---
 
 ## [Cuckoo Clock Half-Timbered Wanderer](/Cuckoo-Clock-Half-Timbered-Wanderer)
 [![Cuckoo-Clock-Half-Timbered-Wanderer](<https://m.media-amazon.com/images/I/41fnB9nfRxL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Half-timbered-wanderer/dp/B0016GFYNA/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Half-Timbered-Wanderer](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Half-timbered-wanderer/dp/B0016GFYNA/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
-### Customers Say about this product
-
-> 
-
----
-
-## [Real Moving Gears Wall Clock Large Modern Metal](/Real-Moving-Gears-Wall-Clock-Large-Modern-Metal)
-[![Real-Moving-Gears-Wall-Clock-Large-Modern-Metal](<https://m.media-amazon.com/images/I/81nI4krv7aL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Lumberjack/dp/B0016GEVZW/?tag=cuckoo0d-21>)[![Real-Moving-Gears-Wall-Clock-Large-Modern-Metal](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Lumberjack/dp/B0016GEVZW/?tag=cuckoo0d-21>)
-
-### Product Description 
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 4.0445.01.C   |
+| Item Weight      | 5.2 Kilograms |
+| Material         | Wood          |
+| Special Features | Alarm         |
+| Item Weight      | 5.2 kg        |
 
 ### Customers Say about this product
 
-> 
-
----
-
-## [Silent Bedside Clocks Battery Operated Non Ticking Analogue](/Silent-Bedside-Clocks-Battery-Operated-Non-Ticking-Analogue)
-[![Silent-Bedside-Clocks-Battery-Operated-Non-Ticking-Analogue](<https://m.media-amazon.com/images/I/513k2c-cJKL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Drinker/dp/B0011534II/?tag=cuckoo0d-21>)[![Silent-Bedside-Clocks-Battery-Operated-Non-Ticking-Analogue](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Drinker/dp/B0011534II/?tag=cuckoo0d-21>)
-
-### Product Description 
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-### Customers Say about this product
-
-> 
-
----
-
-## [M Mantel Railway Silent Sweep Mantel Clock -](/M-Mantel-Railway-Silent-Sweep-Mantel-Clock--)
-[![M-Mantel-Railway-Silent-Sweep-Mantel-Clock--](<https://m.media-amazon.com/images/I/61QVDrXHz6L._AC_UL320_.jpg,https://m.media-amazon.com/images/I/111mHoVK0kL._SS200_.png>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Leaves-moving/dp/B0011534BA/?tag=cuckoo0d-21>)[![M-Mantel-Railway-Silent-Sweep-Mantel-Clock--](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Leaves-moving/dp/B0011534BA/?tag=cuckoo0d-21>)
-
-### Product Description 
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-### Customers Say about this product
-
-> 
+> Perfect!
 
 ---
 
 ## [Cuckoo Clock Black Forest House Lumberjack](/Cuckoo-Clock-Black-Forest-House-Lumberjack)
 [![Cuckoo-Clock-Black-Forest-House-Lumberjack](<https://m.media-amazon.com/images/I/413kRVVZ3ZL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-leaves-swallow/dp/B00114ZPMC/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Lumberjack](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-leaves-swallow/dp/B00114ZPMC/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand              | August Schwer                        |
+|--------------------|--------------------------------------|
+| Model Number       | 2.0092.01.C                          |
+| Product Dimensions | 29.01 x 35 x 27.99 cm; 5.4 Kilograms |
+| Material           | Wood                                 |
+| Special Features   | Alarm                                |
+| Item Weight        | 5.4 kg                               |
+
 ### Customers Say about this product
 
-> 
+> No customer reviews.
 
 ---
 
 ## [Cuckoo Clock Mill Wheel Beer Drinker](/Cuckoo-Clock-Mill-Wheel-Beer-Drinker)
 [![Cuckoo-Clock-Mill-Wheel-Beer-Drinker](<https://m.media-amazon.com/images/I/71sGax7fegL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Three/dp/B000YSEILU/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Mill-Wheel-Beer-Drinker](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Three/dp/B000YSEILU/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand        | August Schwer |
+|--------------|---------------|
+| Model Number | 2.5029.03.P   |
+| Item Weight  | 5.5 Kilograms |
+| Material     | Wood          |
+| Item Weight  | 5.5 kg        |
+
 ### Customers Say about this product
 
-> 
+> Looks exactly like the photos. Really happy with my purchase.
 
 ---
 
 ## [Cuckoo Clock Six Leaves Moving Birds Nest](/Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest)
 [![Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest](<https://m.media-amazon.com/images/I/518VCbdIjZL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Bird/dp/B000YSEIKG/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Bird/dp/B000YSEIKG/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 2.5031.01.P   |
+| Item Weight      | 5.4 Kilograms |
+| Material         | Wood          |
+| Special Features | Hourly Clock  |
+| Item Weight      | 5.4 kg        |
+
+
 ### Customers Say about this product
 
-> 
+> Beautiful clock, well worth the price tag!
 
 ---
 
 ## [Cuckoo Clock 10 Leaves Swallow](/Cuckoo-Clock-10-Leaves-Swallow)
 [![Cuckoo-Clock-10-Leaves-Swallow](<https://m.media-amazon.com/images/I/415gNV1tWRL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YSEGL2/?tag=cuckoo0d-21>)[![Cuckoo-Clock-10-Leaves-Swallow](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YSEGL2/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 5.0284.01.C   |
+| Item Weight      | 9.3 Kilograms |
+| Material         | Wood          |
+| Special Features | Alarm         |
+| Item Weight      | 9.3 kg        |
+
 ### Customers Say about this product
 
-> 
+> Incredible cuckoo clock, stunning design! Get lots of comments on it and the kids love it!
 
 ---
 
 ## [Cuckoo Clock Three Birds Nest](/Cuckoo-Clock-Three-Birds-Nest)
 [![Cuckoo-Clock-Three-Birds-Nest](<https://m.media-amazon.com/images/I/51xdOam6QzL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YSEG30/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Three-Birds-Nest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YSEG30/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -670,8 +696,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Bird Nest Owls](/Cuckoo-Clock-Bird-Nest-Owls)
 [![Cuckoo-Clock-Bird-Nest-Owls](<https://m.media-amazon.com/images/I/51Uw7f-b-fL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Hunters-Farmhouse/dp/B000YSEFV8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Bird-Nest-Owls](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Hunters-Farmhouse/dp/B000YSEFV8/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -686,8 +710,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Seven Leaves Three Birds](/Cuckoo-Clock-Seven-Leaves-Three-Birds)
 [![Cuckoo-Clock-Seven-Leaves-Three-Birds](<https://m.media-amazon.com/images/I/512lWATts1L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Chimney-3-0306-10-C/dp/B000YSD04G/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Seven-Leaves-Three-Birds](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Chimney-3-0306-10-C/dp/B000YSD04G/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -704,8 +726,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Hunting Clock Sitting Animals](/Cuckoo-Clock-Hunting-Clock-Sitting-Animals)
 [![Cuckoo-Clock-Hunting-Clock-Sitting-Animals](<https://m.media-amazon.com/images/I/51qYuiPN1yL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSCYZ2/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Hunting-Clock-Sitting-Animals](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSCYZ2/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -720,8 +740,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Hunters House Farmhouse](/Cuckoo-Clock-Hunters-House-Farmhouse)
 [![Cuckoo-Clock-Hunters-House-Farmhouse](<https://m.media-amazon.com/images/I/717+VcE85NL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YSB9TE/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Hunters-House-Farmhouse](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YSB9TE/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -738,8 +756,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Black Forest House Goat Chimney Sweep](/Cuckoo-Clock-Black-Forest-House-Goat-Chimney-Sweep)
 [![Cuckoo-Clock-Black-Forest-House-Goat-Chimney-Sweep](<https://m.media-amazon.com/images/I/41GUCdNpzFL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Grouse-8-leaves/dp/B000YSB94Y/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Goat-Chimney-Sweep](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Grouse-8-leaves/dp/B000YSB94Y/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -754,8 +770,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Bears In The Forest](/Cuckoo-Clock-Bears-In-The-Forest)
 [![Cuckoo-Clock-Bears-In-The-Forest](<https://m.media-amazon.com/images/I/41p-adjVSNL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-7-leaves-sparrow/dp/B000YSB90S/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Bears-In-The-Forest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-7-leaves-sparrow/dp/B000YSB90S/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -772,8 +786,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock 5 Leaves Head Of A Deer](/Cuckoo-Clock-5-Leaves-Head-Of-A-Deer)
 [![Cuckoo-Clock-5-Leaves-Head-Of-A-Deer](<https://m.media-amazon.com/images/I/51g4J+6+L6L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSB8OU/?tag=cuckoo0d-21>)[![Cuckoo-Clock-5-Leaves-Head-Of-A-Deer](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSB8OU/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -788,8 +800,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Wood Grouse 8-Leaves](/Cuckoo-Clock-Wood-Grouse-8-Leaves)
 [![Cuckoo-Clock-Wood-Grouse-8-Leaves](<https://m.media-amazon.com/images/I/413SUnantaL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-turning-mill-wheel/dp/B000YSB822/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Wood-Grouse-8-Leaves](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-turning-mill-wheel/dp/B000YSB822/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -806,8 +816,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock 7-Leaves Sparrow Lark](/Cuckoo-Clock-7-Leaves-Sparrow-Lark)
 [![Cuckoo-Clock-7-Leaves-Sparrow-Lark](<https://m.media-amazon.com/images/I/51ZN-4nLOUL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-moveable-kissing/dp/B000YSB7ZA/?tag=cuckoo0d-21>)[![Cuckoo-Clock-7-Leaves-Sparrow-Lark](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-moveable-kissing/dp/B000YSB7ZA/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -822,8 +830,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Black Forest House](/Cuckoo-Clock-Black-Forest-House)
 [![Cuckoo-Clock-Black-Forest-House](<https://m.media-amazon.com/images/I/81ft0acVhuL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Herdess/dp/B000YSB7SW/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Herdess/dp/B000YSB7SW/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -840,8 +846,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Black Forest House Turning Mill-Wheel](/Cuckoo-Clock-Black-Forest-House-Turning-Mill-Wheel)
 [![Cuckoo-Clock-Black-Forest-House-Turning-Mill-Wheel](<https://m.media-amazon.com/images/I/814lXHJxpZL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Hunter/dp/B000YSB7OG/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Turning-Mill-Wheel](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Hunter/dp/B000YSB7OG/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -856,8 +860,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Moveable Kissing Couple](/Cuckoo-Clock-Moveable-Kissing-Couple)
 [![Cuckoo-Clock-Moveable-Kissing-Couple](<https://m.media-amazon.com/images/I/71D9EfmZP8L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSB7LE/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Moveable-Kissing-Couple](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSB7LE/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -874,8 +876,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Trunk Geese Herdess](/Cuckoo-Clock-Trunk-Geese-Herdess)
 [![Cuckoo-Clock-Trunk-Geese-Herdess](<https://m.media-amazon.com/images/I/51OqIu-vfRL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Half-timbered-Costume/dp/B000YSB6WE/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Trunk-Geese-Herdess](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Half-timbered-Costume/dp/B000YSB6WE/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -890,8 +890,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Black Forest House Hunter Bear](/Cuckoo-Clock-Black-Forest-House-Hunter-Bear)
 [![Cuckoo-Clock-Black-Forest-House-Hunter-Bear](<https://m.media-amazon.com/images/I/41gORSnI2fL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Leaves-Squirrel/dp/B000YSB6OW/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Hunter-Bear](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Leaves-Squirrel/dp/B000YSB6OW/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -908,8 +906,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Black Forest House Bears](/Cuckoo-Clock-Black-Forest-House-Bears)
 [![Cuckoo-Clock-Black-Forest-House-Bears](<https://m.media-amazon.com/images/I/51-72VWN43L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Hunting-hunter/dp/B000YS978Y/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Bears](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Hunting-hunter/dp/B000YS978Y/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -924,8 +920,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Half-Timbered Costume Couple](/Cuckoo-Clock-Half-Timbered-Costume-Couple)
 [![Cuckoo-Clock-Half-Timbered-Costume-Couple](<https://m.media-amazon.com/images/I/41nOI2pbHLL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-8-leaves/dp/B000YS96YE/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Half-Timbered-Costume-Couple](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-8-leaves/dp/B000YS96YE/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -942,8 +936,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Seven Leaves Squirrel Bird](/Cuckoo-Clock-Seven-Leaves-Squirrel-Bird)
 [![Cuckoo-Clock-Seven-Leaves-Squirrel-Bird](<https://m.media-amazon.com/images/I/71GA8iq1ETL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YS966C/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Seven-Leaves-Squirrel-Bird](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YS966C/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -958,8 +950,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Of The Year 2008 Hunting Lodge](/Cuckoo-Clock-Of-The-Year-2008-Hunting-Lodge)
 [![Cuckoo-Clock-Of-The-Year-2008-Hunting-Lodge](<https://m.media-amazon.com/images/I/41IPb1QJS+L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Wheel/dp/B000YS956S/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Of-The-Year-2008-Hunting-Lodge](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Wheel/dp/B000YS956S/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -990,61 +980,8 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ---
 
-## [Small Travel Alarm Clock Alarm Clocks Bedside Non](/Small-Travel-Alarm-Clock-Alarm-Clocks-Bedside-Non)
-[![Small-Travel-Alarm-Clock-Alarm-Clocks-Bedside-Non](<https://m.media-amazon.com/images/I/6108ZJvJwsS._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Shepherd/dp/B000YS942I/?tag=cuckoo0d-21>)[![Small-Travel-Alarm-Clock-Alarm-Clocks-Bedside-Non](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Shepherd/dp/B000YS942I/?tag=cuckoo0d-21>)
-
-### Product Description 
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-### Customers Say about this product
-
-> 
-
----
-
-## [Retro Wall Clock 13'' Non Ticking Classic Silent](/Retro-Wall-Clock-13''-Non-Ticking-Classic-Silent)
-[![Retro-Wall-Clock-13''-Non-Ticking-Classic-Silent](<https://m.media-amazon.com/images/I/71gWUZO2djL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-mill-wheel/dp/B000YS76MS/?tag=cuckoo0d-21>)[![Retro-Wall-Clock-13''-Non-Ticking-Classic-Silent](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-mill-wheel/dp/B000YS76MS/?tag=cuckoo0d-21>)
-
-### Product Description 
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-### Customers Say about this product
-
-> 
-
----
-
-## [M Mantel Railway Silent Sweep Mantel Clock -](/M-Mantel-Railway-Silent-Sweep-Mantel-Clock--)
-[![M-Mantel-Railway-Silent-Sweep-Mantel-Clock--](<https://m.media-amazon.com/images/I/619vTdYBryL._AC_UL320_.jpg,https://m.media-amazon.com/images/I/111mHoVK0kL._SS200_.png>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Leaves-moving/dp/B000YS75L0/?tag=cuckoo0d-21>)[![M-Mantel-Railway-Silent-Sweep-Mantel-Clock--](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Leaves-moving/dp/B000YS75L0/?tag=cuckoo0d-21>)
-
-### Product Description 
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-### Customers Say about this product
-
-> 
-
----
-
 ## [Cuckoo Clock Six Leaves Three Birds Nest](/Cuckoo-Clock-Six-Leaves-Three-Birds-Nest)
 [![Cuckoo-Clock-Six-Leaves-Three-Birds-Nest](<https://m.media-amazon.com/images/I/51JFbhXgnAL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YS75D8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Six-Leaves-Three-Birds-Nest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YS75D8/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -1061,8 +998,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Deer Mill Wheel](/Cuckoo-Clock-Deer-Mill-Wheel)
 [![Cuckoo-Clock-Deer-Mill-Wheel](<https://m.media-amazon.com/images/I/51IylRQFGBL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Group/dp/B000YS7538/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Deer-Mill-Wheel](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Group/dp/B000YS7538/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -1077,8 +1012,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Hunting Clock Sitting Animals](/Cuckoo-Clock-Hunting-Clock-Sitting-Animals)
 [![Cuckoo-Clock-Hunting-Clock-Sitting-Animals](<https://m.media-amazon.com/images/I/51FiPJYw1AL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-birds/dp/B000YS74T8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Hunting-Clock-Sitting-Animals](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-birds/dp/B000YS74T8/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
@@ -1095,8 +1028,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Cuckoo Clock Black Forest House Shepherd](/Cuckoo-Clock-Black-Forest-House-Shepherd)
 [![Cuckoo-Clock-Black-Forest-House-Shepherd](<https://m.media-amazon.com/images/I/71sccXyrPnL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Group/dp/B000YS74NO/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Shepherd](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Group/dp/B000YS74NO/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -1112,8 +1043,6 @@ We invite you to explore our world, where every second is celebrated with the me
 ## [Isdd Cuckoo Clock Cow In The Past Windmill](/Isdd-Cuckoo-Clock-Cow-In-The-Past-Windmill)
 [![Isdd-Cuckoo-Clock-Cow-In-The-Past-Windmill](<https://m.media-amazon.com/images/I/41O1MRrbjkL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Marmot-Chimney/dp/B000YS74N4/?tag=cuckoo0d-21>)[![Isdd-Cuckoo-Clock-Cow-In-The-Past-Windmill](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Marmot-Chimney/dp/B000YS74N4/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
@@ -1128,8 +1057,6 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ## [Cuckoo Clock Six Leaves Moving Birds Nest](/Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest)
 [![Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest](<https://m.media-amazon.com/images/I/518VCbdIjZL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Hunter/dp/B000YS74IO/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Hunter/dp/B000YS74IO/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
