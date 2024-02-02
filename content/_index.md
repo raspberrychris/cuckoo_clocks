@@ -320,52 +320,68 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ### Technical Details
 
-
+| Brand            | August Schwer  |
+|------------------|----------------|
+| Model Number     | 5.8786.01.P    |
+| Item Weight      | 11.5 Kilograms |
+| Material         | Wood           |
+| Special Features | Silent Clock   |
+| Item Weight      | 11.5 kg        |
 
 ### Customers Say about this product
 
-> 
+> Absolutely beautiful cuckoo clock, my wife is very pleased with it!
 
 ---
 
 ## ['Isdd Cuckoo Clock – Clock Cucú Design The Black Forest](/'Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest)
 [!['Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest](<https://m.media-amazon.com/images/I/71WK5aCfA1L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-chopper/dp/B004ZET8C8/?tag=cuckoo0d-21>)[!['Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-chopper/dp/B004ZET8C8/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand            | Anton Schneider |
+|------------------|-----------------|
+| Model Number     | SC 8TMT 5483/9  |
+| Colour           | Black           |
+| Material         | Wood            |
+| Special Features | Daylight Saving |
+| Item Weight      | 11.5 kg         |
+
 ### Customers Say about this product
 
-> 
+> Really in love with this clock, it puts a smile on my face every morning!
 
 ---
 
 ## [Isdd Cuckoo Clock 5 Foliages Bird](/Isdd-Cuckoo-Clock-5-Foliages-Bird)
 [![Isdd-Cuckoo-Clock-5-Foliages-Bird](<https://m.media-amazon.com/images/I/719zQXNUE6L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Clock-Five-Leaves-Bird/dp/B004ZERRS0/?tag=cuckoo0d-21>)[![Isdd-Cuckoo-Clock-5-Foliages-Bird](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Clock-Five-Leaves-Bird/dp/B004ZERRS0/?tag=cuckoo0d-21>)
 
-### Product Description 
-
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand              | Anton Schneider                |
+|--------------------|--------------------------------|
+| Model Number       | SC MT 6100/9                   |
+| Product Dimensions | 20 x 32 x 17 cm; 3.2 Kilograms |
+| Material           | Wood                           |
+| Item Weight        | 3.2 kg                         |
+| Item Weight        | 11.5 kg                        |
+
 ### Customers Say about this product
 
-> 
+> Great cuckoo clock! Exactly what I wanted
 
 ---
 
 ## [Cucus Modern 1 Day Black](/Cucus-Modern-1-Day-Black)
 [![Cucus-Modern-1-Day-Black](<https://m.media-amazon.com/images/I/614V92XkXEL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/German-Cuckoo-Clock-1-day-movement-Modern-Art-Style/dp/B002QZV9MU/?tag=cuckoo0d-21>)[![Cucus-Modern-1-Day-Black](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/German-Cuckoo-Clock-1-day-movement-Modern-Art-Style/dp/B002QZV9MU/?tag=cuckoo0d-21>)
-
-### Product Description 
 
 ### Our Rating For This Product
 
