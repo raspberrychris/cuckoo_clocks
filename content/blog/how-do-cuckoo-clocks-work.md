@@ -3,7 +3,7 @@ title: "How do cuckoo clocks work?"
 description: "How do cuckoo clocks work"
 ---
 
-# The Captivating History and Mesmerizing Mechanics of Cuckoo Clocks
+## The Captivating History and Mesmerizing Mechanics of Cuckoo Clocks
 
 The distinct "cuckoo" call of the famous black-forested bird has been emanating from clocks for centuries, mesmerizing and delighting people across cultures. But how exactly does the iconic cuckoo clock perform its delightful workings? Let's unravel the intricacies behind one of history's most charming timepieces. 
 
