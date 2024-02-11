@@ -1,6 +1,6 @@
 ---
-title: "How do cuckoo clocks work?"
-description: "How do cuckoo clocks work"
+title: "Where do cuckoo clocks come from?"
+description: "Where do cuckoo clocks come from?"
 ---
 
 ## The Captivating History of Cuckoo Clocks: Origins in the Black Forest and Journey Around the World
