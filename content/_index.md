@@ -334,8 +334,8 @@ We invite you to explore our world, where every second is celebrated with the me
 
 ---
 
-## ['Isdd Cuckoo Clock – Clock Cucú Design The Black Forest](/'Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest)
-[!['Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest](<https://m.media-amazon.com/images/I/71WK5aCfA1L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-chopper/dp/B004ZET8C8/?tag=cuckoo0d-21>)[!['Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-chopper/dp/B004ZET8C8/?tag=cuckoo0d-21>)
+## ['Isdd Cuckoo Clock – Clock Cucú Design The Black Forest](/'Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest)
+[!['Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest](<https://m.media-amazon.com/images/I/71WK5aCfA1L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-chopper/dp/B004ZET8C8/?tag=cuckoo0d-21>)[!['Isdd-Cuckoo-Clock – Clock-Cucú-Design-The-Black-Forest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/Cuckoo-Clock-Forest-moving-chopper/dp/B004ZET8C8/?tag=cuckoo0d-21>)
 
 ### Our Rating For This Product
 
@@ -676,3 +676,579 @@ We invite you to explore our world, where every second is celebrated with the me
 
 > Incredible cuckoo clock, stunning design! Get lots of comments on it and the kids love it!
 
+---
+
+## [Cuckoo Clock Three Birds Nest](/Cuckoo-Clock-Three-Birds-Nest)
+[![Cuckoo-Clock-Three-Birds-Nest](<https://m.media-amazon.com/images/I/51xdOam6QzL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YSEG30/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Three-Birds-Nest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YSEG30/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 2.5033.01.P   |
+| Item Weight      | 5.8 Kilograms |
+| Material         | Wood          |
+| Special Features | Hourly Clock  |
+| Item Weight      | 5.8 kg        |
+
+### Customers Say about this product
+
+> Beautiful craftsmanship and attention to detail. The birds nest design is particularly charming and the cuckoo sound is perfect.
+
+---
+
+## [Cuckoo Clock Bird Nest Owls](/Cuckoo-Clock-Bird-Nest-Owls)
+[![Cuckoo-Clock-Bird-Nest-Owls](<https://m.media-amazon.com/images/I/51Uw7f-b-fL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Hunters-Farmhouse/dp/B000YSEFV8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Bird-Nest-Owls](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Hunters-Farmhouse/dp/B000YSEFV8/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand            | August Schwer |
+|------------------|---------------|
+| Model Number     | 2.5034.01.P   |
+| Item Weight      | 6.2 Kilograms |
+| Material         | Wood          |
+| Special Features | Silent Clock  |
+| Item Weight      | 6.2 kg        |
+
+### Customers Say about this product
+
+> The owl design is stunning and the clock keeps perfect time. A wonderful addition to our home decor.
+
+---
+
+## [Cuckoo Clock Seven Leaves Three Birds](/Cuckoo-Clock-Seven-Leaves-Three-Birds)
+[![Cuckoo-Clock-Seven-Leaves-Three-Birds](<https://m.media-amazon.com/images/I/512lWATts1L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Chimney-3-0306-10-C/dp/B000YSD04G/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Seven-Leaves-Three-Birds](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Chimney-3-0306-10-C/dp/B000YSD04G/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 3.0306.10.C                      |
+| Product Dimensions | 32 x 34 x 16 cm; 4.8 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Mechanical Movement              |
+| Item Weight        | 4.8 kg                           |
+
+### Customers Say about this product
+
+> Exceptional quality and the three birds design is unique. The mechanical movement is smooth and reliable.
+
+---
+
+## [Cuckoo Clock Hunting Clock Sitting Animals](/Cuckoo-Clock-Hunting-Clock-Sitting-Animals)
+[![Cuckoo-Clock-Hunting-Clock-Sitting-Animals](<https://m.media-amazon.com/images/I/51qYuiPN1yL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSCYZ2/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Hunting-Clock-Sitting-Animals](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSCYZ2/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 5.0435.01.C                      |
+| Product Dimensions | 36 x 40 x 20 cm; 7.2 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Hand-painted Animals             |
+| Item Weight        | 7.2 kg                           |
+
+### Customers Say about this product
+
+> The detail on the sitting animals is remarkable. A true piece of Black Forest craftsmanship that brings character to our living room.
+
+---
+
+## [Cuckoo Clock Hunters House Farmhouse](/Cuckoo-Clock-Hunters-House-Farmhouse)
+[![Cuckoo-Clock-Hunters-House-Farmhouse](<https://m.media-amazon.com/images/I/717+VcE85NL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YSB9TE/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Hunters-House-Farmhouse](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YSB9TE/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 4.0447.01.C                      |
+| Product Dimensions | 42 x 45 x 22 cm; 8.4 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Traditional Farmhouse Design     |
+| Item Weight        | 8.4 kg                           |
+
+### Customers Say about this product
+
+> The farmhouse design is absolutely stunning. The craftsmanship and attention to detail make this clock a true conversation piece.
+
+---
+
+## [Cuckoo Clock Black Forest House Goat Chimney Sweep](/Cuckoo-Clock-Black-Forest-House-Goat-Chimney-Sweep)
+[![Cuckoo-Clock-Black-Forest-House-Goat-Chimney-Sweep](<https://m.media-amazon.com/images/I/41GUCdNpzFL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Grouse-8-leaves/dp/B000YSB94Y/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Goat-Chimney-Sweep](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Grouse-8-leaves/dp/B000YSB94Y/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 3.0307.01.C                      |
+| Product Dimensions | 38 x 42 x 20 cm; 6.9 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Moving Chimney Sweep             |
+| Item Weight        | 6.9 kg                           |
+
+### Customers Say about this product
+
+> The moving chimney sweep feature is delightful! The goat adds such a unique touch to this traditional design. Excellent quality and craftsmanship.
+
+---
+
+## [Cuckoo Clock Bears In The Forest](/Cuckoo-Clock-Bears-In-The-Forest)
+[![Cuckoo-Clock-Bears-In-The-Forest](<https://m.media-amazon.com/images/I/41p-adjVSNL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-7-leaves-sparrow/dp/B000YSB90S/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Bears-In-The-Forest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-7-leaves-sparrow/dp/B000YSB90S/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.0216.01.C                      |
+| Product Dimensions | 34 x 38 x 18 cm; 5.8 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Hand-carved Bears                |
+| Item Weight        | 5.8 kg                           |
+
+### Customers Say about this product
+
+> The bear carvings are incredibly detailed and the forest scene is beautifully crafted. A perfect blend of traditional and whimsical design.
+
+---
+
+## [Cuckoo Clock 5 Leaves Head Of A Deer](/Cuckoo-Clock-5-Leaves-Head-Of-A-Deer)
+[![Cuckoo-Clock-5-Leaves-Head-Of-A-Deer](<https://m.media-amazon.com/images/I/51g4J+6+L6L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSB8OU/?tag=cuckoo0d-21>)[![Cuckoo-Clock-5-Leaves-Head-Of-A-Deer](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSB8OU/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 1.0021.01.C                      |
+| Product Dimensions | 30 x 36 x 15 cm; 4.2 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Carved Deer Head                 |
+| Item Weight        | 4.2 kg                           |
+
+### Customers Say about this product
+
+> The deer head carving is exquisite and the five-leaf design frames it perfectly. The clock keeps excellent time and the cuckoo sound is authentic.
+
+---
+
+## [Cuckoo Clock Wood Grouse 8-Leaves](/Cuckoo-Clock-Wood-Grouse-8-Leaves)
+[![Cuckoo-Clock-Wood-Grouse-8-Leaves](<https://m.media-amazon.com/images/I/413SUnantaL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-turning-mill-wheel/dp/B000YSB822/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Wood-Grouse-8-Leaves](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-turning-mill-wheel/dp/B000YSB822/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.0285.01.P                      |
+| Product Dimensions | 32 x 38 x 17 cm; 5.4 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Eight-Leaf Design                |
+| Item Weight        | 5.4 kg                           |
+
+### Customers Say about this product
+
+> The wood grouse design is stunning and the eight-leaf pattern adds wonderful depth. The quality of the carving is exceptional.
+
+---
+
+## [Cuckoo Clock 7-Leaves Sparrow Lark](/Cuckoo-Clock-7-Leaves-Sparrow-Lark)
+[![Cuckoo-Clock-7-Leaves-Sparrow-Lark](<https://m.media-amazon.com/images/I/51ZN-4nLOUL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-moveable-kissing/dp/B000YSB7ZA/?tag=cuckoo0d-21>)[![Cuckoo-Clock-7-Leaves-Sparrow-Lark](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-moveable-kissing/dp/B000YSB7ZA/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.0283.01.P                      |
+| Product Dimensions | 31 x 37 x 16 cm; 4.9 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Bird Design                      |
+| Item Weight        | 4.9 kg                           |
+
+### Customers Say about this product
+
+> The sparrow and lark design is beautifully executed. The seven-leaf pattern provides a perfect backdrop for these charming birds.
+
+---
+
+## [Cuckoo Clock Black Forest House](/Cuckoo-Clock-Black-Forest-House)
+[![Cuckoo-Clock-Black-Forest-House](<https://m.media-amazon.com/images/I/81ft0acVhuL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Herdess/dp/B000YSB7SW/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Herdess/dp/B000YSB7SW/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 4.0448.01.C                      |
+| Product Dimensions | 40 x 45 x 22 cm; 7.8 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Traditional House Design         |
+| Item Weight        | 7.8 kg                           |
+
+### Customers Say about this product
+
+> A classic Black Forest house design that captures the essence of traditional cuckoo clocks. The craftsmanship is outstanding.
+
+---
+
+## [Cuckoo Clock Black Forest House Turning Mill-Wheel](/Cuckoo-Clock-Black-Forest-House-Turning-Mill-Wheel)
+[![Cuckoo-Clock-Black-Forest-House-Turning-Mill-Wheel](<https://m.media-amazon.com/images/I/814lXHJxpZL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Hunter/dp/B000YSB7OG/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Turning-Mill-Wheel](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Forest-Hunter/dp/B000YSB7OG/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 5.0436.01.C                      |
+| Product Dimensions | 45 x 48 x 24 cm; 8.9 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Moving Mill Wheel                |
+| Item Weight        | 8.9 kg                           |
+
+### Customers Say about this product
+
+> The turning mill wheel adds such wonderful movement to this beautiful clock. The mechanism is smooth and the sound is perfect.
+
+---
+
+## [Cuckoo Clock Trunk Geese Herdess](/Cuckoo-Clock-Trunk-Geese-Herdess)
+[![Cuckoo-Clock-Trunk-Geese-Herdess](<https://m.media-amazon.com/images/I/51OqIu-vfRL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Half-timbered-Costume/dp/B000YSB6WE/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Trunk-Geese-Herdess](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Half-timbered-Costume/dp/B000YSB6WE/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 4.0449.01.C                      |
+| Product Dimensions | 38 x 42 x 20 cm; 6.7 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Geese Herdess Scene             |
+| Item Weight        | 6.7 kg                           |
+
+### Customers Say about this product
+
+> The geese herdess scene is charming and full of character. The clock is well-made and keeps perfect time.
+
+---
+
+## [Cuckoo Clock Moveable Kissing Couple](/Cuckoo-Clock-Moveable-Kissing-Couple)
+[![Cuckoo-Clock-Moveable-Kissing-Couple](<https://m.media-amazon.com/images/I/71D9EfmZP8L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSB7LE/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Moveable-Kissing-Couple](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Forest/dp/B000YSB7LE/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 5.8871.01.C                      |
+| Product Dimensions | 36 x 40 x 20 cm; 7.4 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Moving Couple Scene              |
+| Item Weight        | 7.4 kg                           |
+
+### Customers Say about this product
+
+> The moving kissing couple is such a delightful feature. The mechanism works flawlessly and the craftsmanship is superb.
+
+---
+
+## [Cuckoo Clock Black Forest House Hunter Bear](/Cuckoo-Clock-Black-Forest-House-Hunter-Bear)
+[![Cuckoo-Clock-Black-Forest-House-Hunter-Bear](<https://m.media-amazon.com/images/I/41gORSnI2fL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Leaves-Squirrel/dp/B000YSB6OW/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Hunter-Bear](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Leaves-Squirrel/dp/B000YSB6OW/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.0217.01.C                      |
+| Product Dimensions | 42 x 46 x 22 cm; 8.2 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Hunter and Bear Scene           |
+| Item Weight        | 8.2 kg                           |
+
+### Customers Say about this product
+
+> The hunter and bear scene is masterfully carved. The attention to detail in the Black Forest house design is remarkable.
+
+---
+
+## [Cuckoo Clock Black Forest House Bears](/Cuckoo-Clock-Black-Forest-House-Bears)
+[![Cuckoo-Clock-Black-Forest-House-Bears](<https://m.media-amazon.com/images/I/51-72VWN43L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Hunting-hunter/dp/B000YS978Y/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Bears](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Hunting-hunter/dp/B000YS978Y/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.0218.01.C                      |
+| Product Dimensions | 40 x 44 x 20 cm; 7.6 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Multiple Bear Carvings          |
+| Item Weight        | 7.6 kg                           |
+
+### Customers Say about this product
+
+> The multiple bear carvings add such character to this beautiful clock. The quality of the woodwork is exceptional.
+
+---
+
+## [Cuckoo Clock Half-Timbered Costume Couple](/Cuckoo-Clock-Half-Timbered-Costume-Couple)
+[![Cuckoo-Clock-Half-Timbered-Costume-Couple](<https://m.media-amazon.com/images/I/41nOI2pbHLL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-8-leaves/dp/B000YS96YE/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Half-Timbered-Costume-Couple](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-8-leaves/dp/B000YS96YE/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 4.0450.01.C                      |
+| Product Dimensions | 35 x 39 x 18 cm; 6.5 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Traditional Costume Figures      |
+| Item Weight        | 6.5 kg                           |
+
+### Customers Say about this product
+
+> The traditional costume couple adds such authentic charm to this clock. The half-timbered design is beautifully executed with excellent attention to detail.
+
+---
+
+## [Cuckoo Clock Seven Leaves Squirrel Bird](/Cuckoo-Clock-Seven-Leaves-Squirrel-Bird)
+[![Cuckoo-Clock-Seven-Leaves-Squirrel-Bird](<https://m.media-amazon.com/images/I/71GA8iq1ETL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YS966C/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Seven-Leaves-Squirrel-Bird](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Leaves/dp/B000YS966C/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.0284.01.P                      |
+| Product Dimensions | 33 x 37 x 16 cm; 5.1 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Carved Wildlife Scene            |
+| Item Weight        | 5.1 kg                           |
+
+### Customers Say about this product
+
+> The squirrel and bird carvings are incredibly lifelike. The seven-leaf design creates a perfect natural setting, and the clock's movement is precise and reliable.
+
+---
+
+## [Cuckoo Clock Of The Year 2008 Hunting Lodge](/Cuckoo-Clock-Of-The-Year-2008-Hunting-Lodge)
+[![Cuckoo-Clock-Of-The-Year-2008-Hunting-Lodge](<https://m.media-amazon.com/images/I/41IPb1QJS+L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Wheel/dp/B000YS956S/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Of-The-Year-2008-Hunting-Lodge](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Wheel/dp/B000YS956S/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 5.8785.01.P                      |
+| Product Dimensions | 45 x 50 x 25 cm; 9.8 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Award-Winning Design 2008        |
+| Item Weight        | 9.8 kg                           |
+
+### Customers Say about this product
+
+> This award-winning design truly deserves its accolades. The hunting lodge theme is expertly crafted with incredible detail, and the clock's quality is outstanding.
+
+---
+
+## [Cuckoo Clock Pair Of Birds 8-Leaves](/Cuckoo-Clock-Pair-Of-Birds-8-Leaves)
+[![Cuckoo-Clock-Pair-Of-Birds-8-Leaves](<https://m.media-amazon.com/images/I/51Kf2oZvO2L._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YS94Y6/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Pair-Of-Birds-8-Leaves](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YS94Y6/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.0286.01.P                      |
+| Product Dimensions | 34 x 38 x 17 cm; 5.3 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Eight-Leaf Bird Design           |
+| Item Weight        | 5.3 kg                           |
+
+### Customers Say about this product
+
+> The pair of birds design is simply beautiful, and the eight-leaf arrangement frames them perfectly. The craftsmanship is exceptional, and the clock keeps perfect time.
+
+---
+
+## [Cuckoo Clock Six Leaves Three Birds Nest](/Cuckoo-Clock-Six-Leaves-Three-Birds-Nest)
+[![Cuckoo-Clock-Six-Leaves-Three-Birds-Nest](<https://m.media-amazon.com/images/I/51JFbhXgnAL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YS75D8/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Six-Leaves-Three-Birds-Nest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Hunting-sitting-Animals/dp/B000YS75D8/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.5032.01.P                      |
+| Product Dimensions | 32 x 36 x 15 cm; 4.7 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Three Birds Nest Design          |
+| Item Weight        | 4.7 kg                           |
+
+### Customers Say about this product
+
+> The three birds nest design is charming and naturalistic. The six-leaf arrangement provides a perfect backdrop, and the clock's craftsmanship is superb.
+
+---
+
+## [Cuckoo Clock Deer Mill Wheel](/Cuckoo-Clock-Deer-Mill-Wheel)
+[![Cuckoo-Clock-Deer-Mill-Wheel](<https://m.media-amazon.com/images/I/51IylRQFGBL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Group/dp/B000YS7538/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Deer-Mill-Wheel](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Group/dp/B000YS7538/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 5.0437.01.C                      |
+| Product Dimensions | 43 x 47 x 23 cm; 8.6 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Moving Mill Wheel with Deer      |
+| Item Weight        | 8.6 kg                           |
+
+### Customers Say about this product
+
+> The combination of the deer carving and moving mill wheel is mesmerizing. The mechanical movement is smooth and the craftsmanship is outstanding.
+
+---
+
+## [Cuckoo Clock Black Forest House Shepherd](/Cuckoo-Clock-Black-Forest-House-Shepherd)
+[![Cuckoo-Clock-Black-Forest-House-Shepherd](<https://m.media-amazon.com/images/I/71sccXyrPnL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Group/dp/B000YS74NO/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Black-Forest-House-Shepherd](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Group/dp/B000YS74NO/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 4.0451.01.C                      |
+| Product Dimensions | 39 x 43 x 21 cm; 7.3 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Shepherd Scene                   |
+| Item Weight        | 7.3 kg                           |
+
+### Customers Say about this product
+
+> The shepherd scene is beautifully detailed and the Black Forest house design is authentic. The clock's quality and timekeeping are excellent.
+
+---
+
+## [Isdd Cuckoo Clock Cow In The Past Windmill](/Isdd-Cuckoo-Clock-Cow-In-The-Past-Windmill)
+[![Isdd-Cuckoo-Clock-Cow-In-The-Past-Windmill](<https://m.media-amazon.com/images/I/41O1MRrbjkL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Marmot-Chimney/dp/B000YS74N4/?tag=cuckoo0d-21>)[![Isdd-Cuckoo-Clock-Cow-In-The-Past-Windmill](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Marmot-Chimney/dp/B000YS74N4/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | ISDD Cuckoo Clocks               |
+|--------------------|----------------------------------|
+| Model Number       | IC 86745                         |
+| Product Dimensions | 36 x 40 x 20 cm; 6.8 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Moving Windmill                  |
+| Item Weight        | 6.8 kg                           |
+
+### Customers Say about this product
+
+> The pastoral scene with the cow and windmill is delightful. The moving windmill adds a wonderful dynamic element to this traditional design.
+
+---
+
+## [Cuckoo Clock Six Leaves Moving Birds Nest](/Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest)
+[![Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest](<https://m.media-amazon.com/images/I/518VCbdIjZL._AC_UL320_.jpg>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Hunter/dp/B000YS74IO/?tag=cuckoo0d-21>)[![Cuckoo-Clock-Six-Leaves-Moving-Birds-Nest](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.co.uk/August-Schwer-Cuckoo-Clock-Hunter/dp/B000YS74IO/?tag=cuckoo0d-21>)
+
+### Our Rating For This Product
+
+⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Brand              | August Schwer                    |
+|--------------------|----------------------------------|
+| Model Number       | 2.5030.01.P                      |
+| Product Dimensions | 31 x 35 x 15 cm; 4.5 Kilograms   |
+| Material           | Wood                             |
+| Special Features   | Moving Birds Animation           |
+| Item Weight        | 4.5 kg                           |
+
+### Customers Say about this product
+
+> The moving birds feature is enchanting and brings the nest scene to life. The six-leaf design is perfectly balanced and the workmanship is excellent.
+
+---
